@@ -1,2 +1,2 @@
-https://Edits.com
+https://Edits.net
 http://shanazelstar.com
