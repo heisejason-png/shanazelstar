@@ -1,2 +1,2 @@
-https://Edits.org
-http://shanazelstar.com
+https://www.threads.net/@jaysonscottheise?invite=0
+
