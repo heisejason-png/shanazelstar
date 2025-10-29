@@ -1,2 +1,2 @@
-https://www.threads.net/@jaysonscottheise?invite=0
+https://shanazelstar.atlassian.net
 
