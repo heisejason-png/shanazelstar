@@ -1,4 +1,2 @@
-Created by Jason Heise  https://www.behance.net
-https://next.frame.io  https://www.x.com  
-https://x.com/i/grok 
-https://paulwalkerfoundation.org
+Created by Jason Heise  
+Owned by Jason Heise heisejason-png Giters
